@@ -4,5 +4,3 @@ hi. <img src="https://64.media.tumblr.com/402f5870f060391c50393d93f25b8be2/8afdc
 im a lesbian and im very yuriful
 <img src="https://64.media.tumblr.com/1cdd83c92a2138619620264571c029b2/bf381bb4fba1beca-e0/s100x200/81c402dbff82ba992c1cf380209385f21cea566c.gifv" alt="hi" />
 brightney yume (hypersharing)
-
-pt stuff. ummm ask to c+h . im mostly in the dandys world area 
