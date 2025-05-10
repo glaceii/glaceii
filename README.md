@@ -5,3 +5,4 @@ im a lesbian and im very yuriful
 <img src="https://64.media.tumblr.com/1cdd83c92a2138619620264571c029b2/bf381bb4fba1beca-e0/s100x200/81c402dbff82ba992c1cf380209385f21cea566c.gifv" alt="hi" />
 --
 <img src="https://static.wikia.nocookie.net/rijon/images/7/7e/471-Glaceon.gif/revision/latest/thumbnail/width/360/height/360?cb=20231210070212" alt="hi" />
+connie + gigi + glaceon fictkin 
