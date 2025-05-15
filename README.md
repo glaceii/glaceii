@@ -1,4 +1,4 @@
-hi. i dont bite.. boo <img src="https://64.media.tumblr.com/402f5870f060391c50393d93f25b8be2/8afdcac94c8da8a3-18/s75x75_c1/b96cfde77d8ab432cfdb8b2ec752bbc83c717d52.pnj" alt="hi" />
+hi. boo !! i dont bite. <img src="https://64.media.tumblr.com/402f5870f060391c50393d93f25b8be2/8afdcac94c8da8a3-18/s75x75_c1/b96cfde77d8ab432cfdb8b2ec752bbc83c717d52.pnj" alt="hi" />
 
 <img src="https://media.discordapp.net/attachments/1076408824640049173/1370872609620754515/Untitled1067_20250502105430.png?ex=6821141b&is=681fc29b&hm=529febbc4a7fcc38206b4c882fb6f8468ee75d555d1bad2aac25f25d95cfcfc4&=&format=webp&quality=lossless&width=532&height=350" alt="hi" />
 im a lesbian and im very yuriful
