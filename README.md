@@ -6,3 +6,5 @@ im a lesbian and im very yuriful
 --
 <img src="https://static.wikia.nocookie.net/rijon/images/7/7e/471-Glaceon.gif/revision/latest/thumbnail/width/360/height/360?cb=20231210070212" alt="hi" />
 connie + gigi + glaceon fictkin 
+
+hi um ask for ship stuff or whatever. i like practically every and all wlw lesbian ship stuff  (the legal ones)
