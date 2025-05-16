@@ -8,3 +8,6 @@ im a lesbian and im very yuriful
 connie + gigi + glaceon fictkin 
 
 hi um ask for ship stuff or whatever. i like practically every and all wlw lesbian ship stuff  (the legal ones)
+
+-
+DON'T take inspo unless I give permission holy glaze. I can tell when yall are copying or inspo'ing off me,,,
