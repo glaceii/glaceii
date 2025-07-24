@@ -1,4 +1,4 @@
-HEY HEY HEY!!! <img src="https://file.garden/ZdgVLZzmo3pLm1q9/ezgif-2d61bb464f977e.gif" alt="hi" />
+HEY HEY HEY!!! <img src="https://media.discordapp.net/attachments/1076408824640049173/1397795235580346409/ezgif-2d61bb464f977e.gif?ex=688305c1&is=6881b441&hm=519692bafe0918cabda6aadc7febd9249620c55f6942ded8e91dba4da91d79dd&=" alt="hi" />
 
 hands out FREE papa johns 100% off coupons if i think you are cool. so do not miss out on the papajohns opportunity from the tbd papajohns pizza department
 // im in love with all my nonexistent wives
