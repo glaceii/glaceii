@@ -11,5 +11,7 @@ hands out FREE papa johns 100% off coupons if i think you are cool. so do not mi
 <img src="https://64.media.tumblr.com/bcf5e116ee5423f6b0ec1575873f3716/9f7c912a5db819ea-cf/s100x200/bfdb0cb3de0573eec706105ee3d13bd2e53e25a4.gifv" alt="hi" />
 <img src="https://64.media.tumblr.com/ce47c834bccaebb0561d22fa87df5f57/f1c43a8a27f8c7ad-48/s100x200/ba414a72b85f9eb4288b57d9a69162530fb923bb.gifv" alt="hi" />
 
-im too scared to talk to anyone on this damn pony game pls send help
+i LOVE PAPA JOHNS
+<img src="https://file.garden/ZdgVLZzmo3pLm1q9/Untitled1350_20250728190400.png" alt="hi" />
+
 
